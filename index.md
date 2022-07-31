@@ -17,6 +17,9 @@ Dresscode is smart casual or black suit, whichever you prefer.
 Please let me know by Sunday 28.08. whether you will be able to attend the party either by message or filling out this <a href="https://forms.gle/1zPjfNDeMsBr8ZeM6">form</a>.
 
 
+
+
+
 ### Väitöstilaisuus
 
 Väitöstilaisuuteni järjestetään perjantaina 2. syyskuuta 2022 kello 13 Auditoriossa B123, Exactumissa, Kumpulassa (Pietari Kalmin katu 5).
