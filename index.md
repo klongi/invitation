@@ -27,7 +27,7 @@ Väitöstilaisuuteni järjestetään perjantaina 2. syyskuuta 2022 kello 13 Audi
 
 ### Illan juhla
 
-Mikäli vastaväittäjäni esittää väitöskirjan hyväksymistä, haluan kutsua teidät juhlistamaan tätä samana iltana alkaen klo 19:30. Juhlissa on tarjolla ainakin viiniä, kahvia ja kakkua. 
+Mikäli vastaväittäjäni esittää väitöskirjan hyväksymistä, haluan kutsua teidät juhlistamaan tätä samana iltana alkaen klo 19:30. Juhlissa on tarjolla ainakin viiniä, alkoholittomia juomia, kahvia ja kakkua. 
 
 Juhlat pidetään kerhotilassa Herttoniemenrannassa. Osoite on Amiraali Cronstedtin Ranta 9. Paikka on varattuna klo 23 asti, minkä jälkeen voimme jatkaa juhlintaa läheisessä baarissa.
 
