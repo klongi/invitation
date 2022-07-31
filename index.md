@@ -1,37 +1,13 @@
-## Welcome to GitHub Pages
+## Welcome to Krista's PhD Defence and Afterparty
 
-You can use the [editor on GitHub](https://github.com/klongi/defence/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+### Public Defence
 
-### Markdown
+I'll be defending my doctoral thesis on 2nd of September 2022 in Auditorium B123, Exactum, Kumpula (Pietari Kalmin katu 5, 00560 Helsinki).
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
 
-```markdown
-Syntax highlighted code block
+### Afterparty
 
-# Header 1
-## Header 2
-### Header 3
+You are invited for some wine (and soft drinks), coffee and cake starting at around 19:00.
 
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [Basic writing and formatting syntax](https://docs.github.com/en/github/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/klongi/defence/settings/pages). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
+The afterparty will be held at a club room in Herttoniemenranta. The address is Amiraali Cronstedtin ranta 9. The place is reserved until 23, after which we can continue in some nearby pub.
