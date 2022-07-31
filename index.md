@@ -14,7 +14,7 @@ The afterparty will be held at a private club room in Herttoniemenranta. The add
 
 Dresscode is smart casual or black suit, whichever you prefer.
 
-Please let me know by Sunday 28.08. whether you will be able to attend the party either by message or filling out this <a href="https://forms.gle/1zPjfNDeMsBr8ZeM6">form</a>.
+Please let me know by Sunday 28.08. whether you will be able to attend the party either by message or filling out this <a href="https://forms.gle/1zPjfNDeMsBr8ZeM6">form</a>. Plus ones are welcome.
 
 
 
@@ -33,4 +33,4 @@ Juhlat pidetään kerhotilassa Herttoniemenrannassa. Osoite on Amiraali Cronsted
 
 Pukukoodina on smart casual tai tumma puku.
 
-Ilmoitathan minulle sunnuntaihin 28.8 mennessä pääsetkö osallistumaan juhliin joko viestillä tai täyttämällä <a href="https://forms.gle/1zPjfNDeMsBr8ZeM6">oheisen lomakkeen</a>.
+Ilmoitathan minulle sunnuntaihin 28.8 mennessä pääsetkö osallistumaan juhliin joko viestillä tai täyttämällä <a href="https://forms.gle/1zPjfNDeMsBr8ZeM6">oheisen lomakkeen</a>. Avecit ovat tervetulleita.
