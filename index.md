@@ -22,7 +22,7 @@ Please let me know by Sunday 28.08. whether you will be able to attend the party
 Väitöstilaisuuteni järjestetään perjantaina 2. syyskuuta 2022 kello 13 Auditoriossa B123, Exactumissa, Kumpulassa (Pietari Kalmin katu 5).
 
 
-### 
+### Illan juhla
 
 Mikäli vastaväittäjäni esittää väitöskirjan hyväksymistä, haluan kutsua teidät juhlistamaan tätä samana iltana alkaen klo 19:30. Juhlissa on tarjolla ainakin viiniä, kahvia ja kakkua. 
 
