@@ -12,7 +12,7 @@ I'm organising a small afterparty the same evening. You are invited for some win
 
 The afterparty will be held at a private club room in Herttoniemenranta. The address is Amiraali Cronstedtin ranta 9. The place is reserved until 23, after which we can continue in some nearby pub.
 
-Dresscode is smart casual or black suit, whichever you prefer.
+Dresscode is smart casual.
 
 Please let me know by Sunday 28.08. whether you will be able to attend the party either by message or filling out this <a href="https://forms.gle/1zPjfNDeMsBr8ZeM6">form</a>.
 
@@ -31,6 +31,6 @@ Mikäli vastaväittäjäni esittää väitöskirjan hyväksymistä, haluan kutsu
 
 Juhlat pidetään kerhotilassa Herttoniemenrannassa. Osoite on Amiraali Cronstedtin Ranta 9. Paikka on varattuna klo 23 asti, minkä jälkeen voimme jatkaa juhlintaa läheisessä baarissa.
 
-Pukukoodina on smart casual tai tumma puku.
+Pukukoodina on smart casual.
 
 Ilmoitathan minulle sunnuntaihin 28.8 mennessä pääsetkö osallistumaan juhliin joko viestillä tai täyttämällä <a href="https://forms.gle/1zPjfNDeMsBr8ZeM6">oheisen lomakkeen</a>.
