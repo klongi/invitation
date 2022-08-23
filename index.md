@@ -12,6 +12,8 @@ I'm organising a small afterparty the same evening. You are invited for some win
 
 The afterparty will be held at a private club room in Herttoniemenranta. The address is Amiraali Cronstedtin ranta 9. The place is reserved until 23, after which we can continue in some nearby pub.
 
+<iframe src="https://www.google.com/maps/embed?pb=!1m18!1m12!1m3!1d991.759405169943!2d25.025096357567648!3d60.188696581967804!2m3!1f0!2f0!3f0!3m2!1i1024!2i768!4f13.1!3m3!1m2!1s0x46920948a7c0b439%3A0xd85862a94092eb60!2sAmiraali%20Cronstedtin%20ranta%209%2C%2000810%20Helsinki!5e0!3m2!1sfi!2sfi!4v1661283885544!5m2!1sfi!2sfi" width="600" height="450" style="border:0;" allowfullscreen="" loading="lazy" referrerpolicy="no-referrer-when-downgrade"></iframe>
+
 Dresscode is coctail / smart casual, whichever you feel more comfortable with.
 
 Please let me know by Sunday 28.08. whether you will be able to attend the party either by message or filling out this <a href="https://forms.gle/1zPjfNDeMsBr8ZeM6">form</a>.
