@@ -10,7 +10,7 @@ The defence is public and thus open for anyone to attend. If you are free during
 
 ### Afterparty
 
-I'm organising a small afterparty the same evening. You are invited for some wine (and soft drinks), coffee and cake starting at around 19:30.
+I'm organising a small afterparty the same evening. You are invited for some wine (and soft drinks), coffee and cake starting at around 19:00 - 19:30. We will be having a small karonkka dinner after the defence and before the afterparty, and my current guestimate is that we will be at the afterparty venue 19:30 the latest, but possibly earlier than that. I have recruited some amazing friends to help with the preparations and there will be some wine and snacks availabble, so feel free to arrive any time after 18:30.
 
 The afterparty will be held at a private club room in Herttoniemenranta. The address is Amiraali Cronstedtin ranta 9, and the building is exactly the one under the red marker on the map, entrance is by the sea. The place is reserved until 23, after which we can continue in some nearby pub.
 
@@ -31,7 +31,7 @@ Väitöstilaisuuteni järjestetään perjantaina 2. syyskuuta 2022 kello 13 Audi
 
 ### Illan juhla
 
-Mikäli vastaväittäjäni esittää väitöskirjan hyväksymistä, haluan kutsua teidät juhlistamaan tätä samana iltana alkaen klo 19:30. Juhlissa on tarjolla ainakin viiniä, alkoholittomia juomia, kahvia ja kakkua. 
+Mikäli vastaväittäjäni esittää väitöskirjan hyväksymistä, haluan kutsua teidät juhlistamaan tätä samana iltana alkaen n. klo 18:30 - 19:30. Pidämme pienen karonkkaillallisen väitöstilaisuuden jälkeen ennen illan juhlaa, ja arvioin, että saavumme illalliselta juhlapaikalle viimeistään 19:30, mutta mahdollisesti jo aiemmin. Muutama ihana ystävä on lupautunut auttamaan juhlajärjestelyissä, ja juhlapaikalla on tarjolla viiniä ja naposteltavaa jo ennen meidän paikalle saapumista. Eli tervetuloa paikan päälle milloin tahansa klo. 18:30 alkaen. Juhlissa on tarjolla ainakin viiniä, alkoholittomia juomia, kahvia ja kakkua.
 
 Juhlat pidetään kerhotilassa Herttoniemenrannassa. Osoite on Amiraali Cronstedtin Ranta 9. Rakennus on kartassa punaisen merkin kohdalla, ja sisäänkäynti on meren viereiseltä kävelykadulta. Paikka on varattuna klo 23 asti, minkä jälkeen voimme jatkaa juhlintaa läheisessä baarissa.
 
